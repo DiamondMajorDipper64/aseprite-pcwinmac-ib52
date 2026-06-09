@@ -1,4 +1,4 @@
-# 
+# Profesional Aseprite herramientas para Mac OS | Último Aseprite herramientas para PC Windows. Con herramienta manchar y biblioteca de componentes — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
